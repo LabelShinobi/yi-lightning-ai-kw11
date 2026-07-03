@@ -1,4 +1,4 @@
-# 
+# Advanced Yi-Lightning templates. Featuring hybrid-AI-models and contextual-memory — optimized for maximum performance and efficiency.
 
 
 
